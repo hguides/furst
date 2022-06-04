@@ -6,4 +6,4 @@ How to renew Purple Drank?
 
 How to renew Illogic Pyramyds. This is it.
 
-Missing info goes here: 1, 2, 3
+Missing info goes here: 50, 52 51
